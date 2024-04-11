@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi There, Im Sridhar <br>Software engineer
+Hi There, Im Sridhar <br>Software engineer 💻 && Cyber Aspirant 🥷🏻
 
 
 ## 🌐 Socials:
